@@ -1,4 +1,4 @@
-![b1ndgithub](https://github.com/Team-Bamtea/.github/blob/74ba816769b5af634d533ce1457b7027a11a6724/onion%20%E1%84%87%E1%85%A2%E1%84%80%E1%85%A7%E1%86%BC.png)
+<img width="896" height="512" alt="image" src="https://github.com/user-attachments/assets/db086713-993e-4ce7-b3ee-4c6720be2f36" />
 
 ---
 
