@@ -1,4 +1,4 @@
-<img width="896" height="512" alt="image" src="https://github.com/user-attachments/assets/db086713-993e-4ce7-b3ee-4c6720be2f36" />
+![이미지](https://raw.githubusercontent.com/Team-Bamtea/.github/main/profile/%E1%84%80%E1%85%B5%E1%86%BA%E1%84%92%E1%85%A5%E1%84%87%E1%85%B3%20%E1%84%87%E1%85%A2%E1%84%82%E1%85%A5.png)
 
 ---
 
